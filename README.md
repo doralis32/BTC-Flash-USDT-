@@ -33,5 +33,6 @@ We are committed to providing a secure, efficient, and reliable solution that wi
 
 📨 [Live Chat](https://t.me/softwarehenry)
 
+[LinkedIn](https://www.linkedin.com/in/henry-philip-301487297?trk=contact-info)
 
 🛠️[Developer](https://t.me/softwarehenry)
